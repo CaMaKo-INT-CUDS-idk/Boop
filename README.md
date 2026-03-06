@@ -1,4 +1,3 @@
-# Boop
 So, basically, I would like to say a few things about myself. It'd be nicer if anyone could ask questions and I could reply, but whatever.
 I'm a creative person. I like to draw and write, but mostly stick to playing games due to getting tired easily or losing inspiration.
 I'm bilingual, Spanish being my native language. I'm also Pan but that's unrelated.
